@@ -11,6 +11,9 @@ https://www.linkedin.com/posts/andrea-komljenovic_barbieandreaplayingapiano-meba
 ![Alt-text](https://res.cloudinary.com/duse2sckn/image/upload/v1735236161/nobelprix_music_score_by_me_o3ya40.jpg)
 
 
+![Alt-text](https://res.cloudinary.com/dxjtztwfu/image/upload/v1769725752/andreak_atthepiano_rjdppt.jpg)
+
+
 
 ![beethovengif_xmas2024_andreak](https://github.com/user-attachments/assets/434fa6ab-751b-4286-a80a-7b50daa28d83)
 
