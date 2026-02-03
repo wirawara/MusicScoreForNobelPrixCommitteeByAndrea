@@ -10,7 +10,7 @@ https://www.linkedin.com/posts/andrea-komljenovic_barbieandreaplayingapiano-meba
 
 ![Alt-text](https://res.cloudinary.com/duse2sckn/image/upload/v1735236161/nobelprix_music_score_by_me_o3ya40.jpg)
 
-Print me as a Poster ⭐️ :
+Print me as a music star Poster ⭐️ :
 ![Alt-text](https://res.cloudinary.com/dxjtztwfu/image/upload/v1769725752/andreak_atthepiano_rjdppt.jpg)
 
 
